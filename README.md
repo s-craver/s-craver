@@ -1,4 +1,4 @@
-👋 Hi, I’m <H1>**@s-craver**<H4>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+👋 Hi, I’m **@s-craver**&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 (aka Stephen Craver)</H4></H1>
 ![sc00441](https://github.com/user-attachments/assets/207e38d8-34a9-4901-8997-d5110bd9d229)
 
